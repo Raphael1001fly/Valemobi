@@ -1,1 +1,8 @@
 ---- README ----
+
+ACESSE O SITE ATRAVÉS DO LINK ------> valemobi10.esy.es
+
+MUITO OBRIGADO PELA OPORTUNIDADE VALEMOBI :)
+
+
+
